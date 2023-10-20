@@ -72,9 +72,6 @@ Hot
 References:
    ![Sexy autistic, Alhaitham](alhaitham-fanart-.png)
    ![Sexy judge, Neuvillette](neuvillette.jfif)
-   
-Hot with Strong Beard
-: Baylan Skoll
 
 ~~Dori is tolerable~~ this has been redacted
 
